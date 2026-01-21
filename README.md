@@ -1,9 +1,2 @@
-### Hi there, I am Ervin, and I love to code! 👋
-
-
-
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about anything...
-- 📫 How to reach me: kacarervin@gmail.com...
 
 
